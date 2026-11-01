@@ -14,7 +14,7 @@
 
 <br />
 
-## Hey, I'm sqvage
+## Hey, I’m Bruno, a.k.a. sqvage.
 
 I'm from New York, and I'm the founder and CEO of **DRAG**.
 
